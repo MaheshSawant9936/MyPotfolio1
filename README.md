@@ -2,7 +2,7 @@
 
 
 
-![Protfolio Website](https://i.ibb.co/N7xKjdQ/Screenshot-17.png)
+![Protfolio Website]("C:\Users\Adesjh\Pictures\Screenshots\Screenshot 2025-02-22 201222.png")
 
 <div align="center">
 
